@@ -1,4 +1,4 @@
-- ✨🌏 Hi, I’m @PlasmaDroid 🌑☀️
+- ✨🌏 @PlasmaDroid 🌑☀️
 - 🦾🫀 I’m interested in building a robot.
 - 🦠🧠 I’m currently learning different fields to simulate a synthetic psyche. 
 - 🌱🛸 I’m looking to collaborate on anything tangent to a humanoid ai.
